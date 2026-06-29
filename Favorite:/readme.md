@@ -1,0 +1,1 @@
+- [AI Is Discovering the Doorman Fallacy](https://youtu.be/f-QzIum9bNU)
