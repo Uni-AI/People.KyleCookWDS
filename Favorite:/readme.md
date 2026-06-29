@@ -1,1 +1,2 @@
 - [AI Is Discovering the Doorman Fallacy](https://youtu.be/f-QzIum9bNU)
+- [Everyone Is Wrong About AI Coding](https://youtu.be/pYf72ak2P_s)
