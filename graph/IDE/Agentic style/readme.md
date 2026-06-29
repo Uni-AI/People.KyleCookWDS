@@ -1,0 +1,1 @@
+- [2026 Is The Year IDEs Die](https://youtu.be/XYYZM01P2S0)
